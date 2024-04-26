@@ -2,6 +2,8 @@
 
 ### Ancient Necessity
 
+🏺 Research and evaluation of necessity for the Great Pyramid of Giza in Egypt.
+
 The ancient Egyptians invested lifetimes into the future of mankind and the adundance of environmental space when they designed and constructed thier very large, strong and complex stone structures. The desertified location for the Great Pyramid of Giza was chosen because of the empty sand covered landscape that is mostly unused by people, animals and plants. 
 
 Today, in comparison to modern engineering feats, Egyptian structures are outdated and almost unnecessary. These structures are reinvested into the futures of mankind every day, year and century that passes without destruction.
