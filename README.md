@@ -6,6 +6,7 @@ The ancient Egyptians invested lifetimes into the future of mankind and the adun
 
 Today, in comparison to modern engineering feats, Egyptian structures are outdated and almost unnecessary. These structures are reinvested into the futures of mankind every day, year and century that passes without destruction.
 
+#
 ### Modern Construction
 
 Larger environmental modifications and construction projects have been competed after the construction of the Great Pyramid of Giza in Egypt. The total volume of the Great Pyramid of Giza in Egypt is estimated to be around 2.5 million cubic meters (or 90 million cubic feet). When comparing it to more modern construction projects, its volume may seem modest.
