@@ -6,6 +6,8 @@ The ancient Egyptians invested lifetimes into the future of mankind and the adun
 
 Today, in comparison to modern engineering feats, Egyptian structures are outdated and almost unnecessary. These structures are reinvested into the futures of mankind every day, year and century that passes without destruction.
 
+✋ This top section wasn't written or edited by AI.
+
 #
 ### Modern Construction
 
